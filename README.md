@@ -30,4 +30,4 @@ Discover 300+ restaurant recipes revealed — go to:
 
 Common keywords used to reach this blog:
 
-restaurant recipes revealed
+*restaurant recipes revealed*
