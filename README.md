@@ -1,4 +1,4 @@
-# RestaurantRecipesRevealed
+# 300+ Restaurant Recipes REVEALED! 🎉
 
 Sales have been slowing at national restaurant chains like Red Lobster, TGI Fridays, and the Cheesecake Factory recently due to the increase in gas prices.
 
